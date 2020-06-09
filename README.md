@@ -1,1 +1,0 @@
-# rekrutacjaSLO_zad

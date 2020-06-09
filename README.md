@@ -1,1 +1,0 @@
-# rekrutajcaSLO_zadanie

@@ -1,1 +1,1 @@
-# rekrutajcaSLO_zadanie
+# rekrutacjaSLO_zad
